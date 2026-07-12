@@ -13,7 +13,8 @@ My main interests are old tech, U.S History(Specifically Amrev and Antebellum), 
 
 I WIL SCREAMD ABOUT JACKSONIADN DEMOCRACY THATF MAKES ME GO NUTS.. As of now I rlly lik Mexican Independence an Tex rev 😋😋
 
-Uhh fuckig idiots I hate/'LIKE' (I DONT and I WNA TO DIE..) Andrew Jackson cursed me for fuckig. life and santa anna too.. BRUHE HELPNMEEEEEEE RAAHAHHAEGEGEHEHWHSHSUHHISHKAOHAHOAPHAHLJALHSJKSOJAOJAPJAPJPJAPJAPHAHPAHOAHPAOAOHAH
+Uhh fuckig idiots I hate/'LIKE' (I DONT and I WNA TO DIE..) Andrew Jackson cursed me for fuckig. life and santa anna too.. RAAHAHHAEGEGEHEHWHSSHIIHSISHHSJSJSJOSHKHKDDVCSCGSVHSVJSVJDBKSBKSKBSKBBKSBKSKBSBKSKBSKBSKBKB
+KILL THEM ALLLL
 
 I LOVE SO MUCH EARLY U.S. HISTORY MEDIASSSSSS RAAAAHHH
 
