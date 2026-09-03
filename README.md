@@ -42,6 +42,8 @@ Squashedf
 <img width="270" height="270" alt="Screenshot_20260419_135702_Google" src="https://64.media.tumblr.com/03ef5b714ceefd7f79ac138f4330b807/8572c637ba20188d-1e/s1280x1920/b31efe812a669a5ac0db7e209f38adcf0382afcc.jpg" /><img width="320" height="240" alt="namxxx" src="https://64.media.tumblr.com/5ef219b632b8101d9080249dffdf3de3/1efc8c240082dd69-36/s2048x3072/46a683090d7d99715e4347005354deabc2153801.pnj" /><img width="150" height="100" alt="Screenshot 2026-07-04 001706" src="https://github.com/user-attachments/assets/6cb3022c-c7c3-429e-ae03-f924cc494d65" />
 
 <img width="500" height="500" alt="LAFFAA_08_04_26_PNG" src="https://github.com/user-attachments/assets/d45e9594-ae44-48bf-9cc3-343486214898" />
+<img width="300" height="300" alt="glitchy_laff" src="https://github.com/user-attachments/assets/00ced1a5-987a-4132-9df3-37a47a701b36" /> <img width="300" height="300" alt="explod_shaw" src="https://github.com/user-attachments/assets/1aa6103e-80d2-49ab-8c8d-ca0539246bc4" /><img width="300" height="300" alt="seabury_spinz" src="https://github.com/user-attachments/assets/78370c7c-eb84-48f5-be19-91581125d186" />
+
 
 
 https://github.com/user-attachments/assets/0cbd5d3a-f76b-4763-8748-6fbe6861509f
