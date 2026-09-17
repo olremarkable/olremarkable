@@ -34,7 +34,7 @@ I AM DA NO.1 ANDREW JACKSON MULTISHIPPER
 
 
 <img width="300" height="300" alt="tumblr_2699043eef1c304f547fca3371f96738_359a1058_1280" src="https://github.com/user-attachments/assets/489ac5ba-324c-441b-a656-0b2a55add25a" /><img width="328" height="403" alt="ezgif-7e7533aa8004599b" src="https://github.com/user-attachments/assets/bfecffc1-fbca-4a76-b0c5-a5cf92c18390" />
-
+<img width="1280" height="500" alt="sily dum" src="https://github.com/user-attachments/assets/95281409-41dc-486c-a2c8-682227600186" />
 <img width="960" height="460" alt="Untitled330_20260521210120" src="https://github.com/user-attachments/assets/e1c21cd0-1375-49c0-a328-d3ff149a6b7a" />
 Squashedf
 <img width="2880" height="900" alt="HISTERIA!_Jeffershiet_Transparent_03_09_26" src="https://github.com/user-attachments/assets/d5dfe2c4-1607-42e0-bcfd-b367a017bb19" />
