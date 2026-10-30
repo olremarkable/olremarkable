@@ -21,6 +21,8 @@ WACKY POMO IZ MY FAV AESTHETIC!!! <333
 
 I LOVE TO RAVE. I RAVE EVERYDAYYYEYEEE. HARDCORE NEVER DIES.
 
+View ma new portfolio [here!](https://sites.google.com/view/olremarkable/)
+
 
 <img width="527" height="297" alt="hq720" src="https://github.com/user-attachments/assets/0fc8865b-d378-4744-a2fa-ffa868d7374b" />
 <img width="270" height="270" alt="Screenshot_20260419_135702_Google" src="https://github.com/user-attachments/assets/131f60fd-3218-4a40-9c2d-5dd4c6fd7be7" />
